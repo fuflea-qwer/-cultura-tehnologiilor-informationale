@@ -1,0 +1,1 @@
+# -cultura-tehnologiilor-informationale
